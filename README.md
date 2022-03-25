@@ -1,1 +1,0 @@
-# sametcanerl.github.io
